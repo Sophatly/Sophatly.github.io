@@ -1,1 +1,0 @@
-# Sophatly.github.io
